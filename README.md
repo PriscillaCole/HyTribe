@@ -3,4 +3,4 @@ There is no health without mental health; mental health is too important to be l
 
 We need you to be a part of Us!
 
-[<img src="image\new logo white_2.png" alt="Hytribe>]
+
